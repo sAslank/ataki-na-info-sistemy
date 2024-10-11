@@ -1,0 +1,1 @@
+# ataki-na-info-sistemy
