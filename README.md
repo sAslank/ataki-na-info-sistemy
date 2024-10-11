@@ -94,3 +94,5 @@
 ![alt text](https://github.com/sAslank/ataki-na-info-sistemy/blob/main/Img/Скриншот%2011-10-2024%20055951.jpg)
 
 ![alt text](https://github.com/sAslank/ataki-na-info-sistemy/blob/main/Img/Скриншот%2011-10-2024%20062628.jpg)
+
+# Спасибо =)
